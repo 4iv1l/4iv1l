@@ -1,5 +1,5 @@
 - 👋 Oi, eu sou a Ana
-- 🎂 Te 17 anos
+- 🎂 Tenho 17 anos
 - 👀 Estou interessada em fazer algum curso
 - 🌱 Atualmente estou aprendendo robótica
 - 📫 Pode entrar em contato comigo através das minhas redes sociais e email
